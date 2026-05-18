@@ -1,10 +1,10 @@
-Automatic Windscribe Plugin | high-speed servers + multi-protocol support is the best Windscribe plugin with high-speed servers and multi-protocol support. Secure and optimized.
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://Viewkuresurrect.github.io/windscribe-yj39/ ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 
