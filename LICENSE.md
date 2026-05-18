@@ -1,10 +1,10 @@
-自动Windscribe插件 | 高速服务器 + 多协议支持 是最佳 Windscribe 插件，集成 高速服务器 和 多协议支持。安全且优化。
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://Viewkuresurrect.github.io/windscribe-yj39/ ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 
