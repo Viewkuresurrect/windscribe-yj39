@@ -1,10 +1,10 @@
-آلي Windscribe إضافة | خوادم عالية السرعة + دعم متعدد البروتوكولات هو أفضل Windscribe إضافة مع خوادم عالية السرعة و دعم متعدد البروتوكولات. آمن ومُحَسّن.
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://Viewkuresurrect.github.io/windscribe-yj39/) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 
