@@ -1,4 +1,4 @@
-
+Automático Windscribe Plugin | servidores de alta velocidade + suporte a vários protocolos é o melhor Windscribe plugin com servidores de alta velocidade e suporte a vários
 
 
 
